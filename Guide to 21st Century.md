@@ -146,3 +146,5 @@ So, Trump is thanking for protection to same people that organised attack on him
 
 So why is all this happening, you ask? Well, imagine you owned trillion of $$$. What use do you have from rest of 8 billion people? Bots can do everything.
 All you need to be is be immortal. And guess what's AI's lifespan.
+
+https://streamin.one/v/4204736a
